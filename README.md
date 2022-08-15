@@ -5,6 +5,6 @@ I don't know how to program in Kotlin and Java, so YES!
 
 
 
-@Mishan_Ya#4696 (or use <@!726750873849692190> ) 
-t.me/m1shan_ya 
-+78005553535 (Good luck calling a Russian number)
+@Mishan_Ya#4696 (or use <@!726750873849692190> ) |
+t.me/m1shan_ya |
++78005553535 (Good luck calling a Russian number) 
